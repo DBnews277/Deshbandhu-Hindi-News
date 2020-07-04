@@ -1,0 +1,2 @@
+# Deshbandhu-Hindi-News
+We are reading a lot of news and follow many news sites but it irritates us when news articles are long, opinionated, and important info is in scattered form. But Deshbandhu-Hindi News has been using Inshorts of more than many years. Deshbandhu-Hindi News is a very useful and informative website. Deshbandhu-Hindi News keeps one updated and saves a lot of time by providing news in just 60 words that can be read in just 30 seconds.
